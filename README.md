@@ -24,8 +24,8 @@ Ask Tech he'll tell you I'm strange
 I tell the whole story nothin' but truth 
 (even if it's a stage and and the story keeps changin')
 Plus I look real cute in orange jump suits
-Dana was a girl I knew she was true
-And you the victim don't even know whats ya comin' home to I'm bangin it out amp she's screamin like we doin kungfu.
+There was a girl I knew she was true
+And you the victim don't even know whats ya comin' home to I'm bangin it out amp she's screamin like we do                                in kungfu.
 
 But I'm so different from the person that you once knew
 
