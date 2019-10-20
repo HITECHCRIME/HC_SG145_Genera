@@ -17,11 +17,16 @@ Description.
 
 ```
 So many things to say
-I don't whack my suicides I act my rage
+I don't whack my suicides actin' on rage
 But I rolled saint I can't I ain't (anymore)
 Ask Tech he'll tell you I'm strange
-I tell the whole story nothin' but truth (even if it's a stage and and the story keeps changin')
+I tell the whole story nothin' but truth 
+(even if it's a stage and and the story keeps changin')
+Plus I look real cute in orange jump suits
+Dana was a girl I knew she was true
+And you the victim don't even know whats ya comin' home to I'm bangin it out amp she's screamin like we doin kungfu.
 
+But I'm so different from the person that you once knew
 
 ```
 
