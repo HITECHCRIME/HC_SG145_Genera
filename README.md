@@ -19,6 +19,10 @@ Description.
 So many things to say
 I don't whack my suicides I act my rage
 But I rolled saint I can't I ain't (anymore)
+Ask Tech he'll tell you I'm strange
+I tell the whole story nothin' but truth (even if it's a stage and and the story keeps changin')
+
+
 ```
 
 ## Lyrics Testing Ground
