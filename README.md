@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Genera
 
 **Listen now:** 
 
@@ -16,8 +16,9 @@ Description.
 ## Lyrics
 
 ```
-
-
+So many things to say
+I don't whack my suicides I act my rage
+But I rolled saint I can't I ain't (anymore)
 ```
 
 ## Lyrics Testing Ground
